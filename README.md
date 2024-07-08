@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me don't
+- 📫 How to reach me: 
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I love music
 
